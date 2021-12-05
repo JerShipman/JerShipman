@@ -8,4 +8,3 @@ When I was 7 my mom would give me two pieces of paper, a few paperclips, and a c
 When I was in highschool I used my creativity for graphic design and made some innovative concepts come to life.
 During college, I studied computer science in hopes that I could help make the world a more inspiring place through code. 
 
-💫If you are looking for a talented and curious Sofware Engineer that loves to learn new things... Well hi, i'm your guy! 
